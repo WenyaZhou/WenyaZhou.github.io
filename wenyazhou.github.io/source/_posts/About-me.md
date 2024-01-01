@@ -3,13 +3,16 @@ title: About Me
 date: 2024-1-1
 tag:
 ---
-昨天和朋友们跨年，凌晨四点回来睡的，今天早上九点起来头很晕，肚子痛，确实太放肆了。按以往我会继续睡觉或者躺着休息，但现在我改变了策略，我迅速离开了床，坐起来喝咖啡，认为是在做更重要的事情。即头昏脑胀的此刻，我正在写“关于我自己...“
 
-我热衷于探索复杂的人事物，热衷于动手实践、创造、学习，喜欢精神失常下诞生的想法，我无知、对未知永远好奇🤔。
+I was born in 1999. I'm hunting talents for a living. 
 
-> 死亡是通过推理才被感知的，那是瞬间的运动；死亡属于过去或将来，不属于现在。
+My favorite words: philosophy, sports, music, art, photograthy, smart, energetic, healthy, mathematics, writing, sleep, communication, reasoning, creation, debate, traveling. I am passionate about exploring complex things, enjoy unique ideas. I am curious about the unknown 🤔.
 
-人生像一场冒险，每往前走一点，就搜集到更多活着的意义线索❤️
+> Death is perceived through reasoning, it is the movement of an instant; death belongs to the past or the future, not the present.
+
+Life is like an adventure, with each step forward, collecting more clues to the meaning of being alive 😶. 
+
+Keep moving forward.
 
 
 
